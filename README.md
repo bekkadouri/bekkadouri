@@ -1,8 +1,8 @@
 Nom : chahreddine bekkaddouri
 
-Domaine d'expertise : création des logo et des video de socité et l'enteprises et les boutique en ligne à des prix moin cher
+Domaine d'expertise : création des logos et des videos pour les  socités et les enteprises et les boutiques en ligne à des prix moin cher
 
-Résumé : Je suis un créateur passionné de logos et de vidéos, spécialisé dans l'aide aux entreprises et aux boutiques en ligne à obtenir une identité visuelle percutante à des prix abordables. Avec une expérience approfondie dans la conception graphique et la production vidéo, je m'efforce de fournir des solutions créatives et professionnelles qui répondent aux besoins spécifiques de mes clients.
+ Je suis un créateur passionné de logos et de vidéos, spécialisé dans l'aide aux entreprises et aux boutiques en ligne à obtenir une identité visuelle percutante à des prix abordables. Avec une expérience approfondie dans la conception graphique et la production vidéo, je m'efforce de fournir des solutions créatives et professionnelles qui répondent aux besoins spécifiques de mes clients.
 
 Que vous soyez une start-up cherchant à établir une présence forte sur le marché ou une entreprise établie souhaitant revoir son image de marque, je suis là pour vous aider. Mon processus de création est axé sur la compréhension de votre vision, de vos valeurs et de votre public cible afin de produire des logos et des vidéos qui captivent et engagent votre audience.
 
